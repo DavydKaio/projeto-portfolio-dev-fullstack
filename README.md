@@ -1,5 +1,4 @@
-![image](https://github.com/user-attachments/assets/7095462b-f593-4e73-aa26-5ceff0446757)
-
+![Screenshot 2024-08-31 010427](https://github.com/user-attachments/assets/93788c8d-6e63-4a1d-954c-7d546c9bf612)
 
 # Projeto Portifólio Dev
 
